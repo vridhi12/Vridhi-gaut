@@ -1,4 +1,4 @@
-# Vridhi-gaut
+# Vridhi-gautam
 Short Resume
 # 👋 Hi, I'm Vridhi Gautam
 
